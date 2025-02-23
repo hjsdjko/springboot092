@@ -57,9 +57,7 @@
 
 1. 关注微信公众号 《爱毕设》输入项目编码即可！！！
 
-![qrcode_for_gh_0f10658cd7ee_430](https://github.com/hjsdjko/onlyzaixianshangcheng/assets/120558513/edfc28fc-d9df-4e81-ac62-d02aa360e379)
-
-
+![weixingongzhonghao](https://github.com/hjsdjko/hjsdjko/blob/main/weixingongzhonghao.jpg)
 
 ---
 
